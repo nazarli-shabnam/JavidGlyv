@@ -6,7 +6,7 @@
 
 I am a **Machine Learning Engineer**.
 
-I love to connect with those in it! Please feel free to connect with me on [**LinkedIn**](https://www.linkedin.com/in/cavidqlyv/). 
+I love to connect with those in it! Please feel free to connect with me on [**LinkedIn**]([https://www.linkedin.com/in/cavidqlyv/](https://www.linkedin.com/in/javidglyv/)). 
 
 Thanks and hope to talk soon!
 
